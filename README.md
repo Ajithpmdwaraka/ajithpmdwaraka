@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a FullStack developer
+Hello😍, Myself Ajith P M and Iam a FullStack Developer
 
 
 ## 🌐 Socials:
